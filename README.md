@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...yazılım dilleri
 - 🌱 I’m currently  öğrenmeye 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...İnstagram--hhakann9
+- 📫 How to reach me ...İnstagram--hhakann9 ...Mail. -- hcura888@gmail.com
 
 <!---
 hhakann9/hhakann9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
